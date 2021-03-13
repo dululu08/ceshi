@@ -1,0 +1,45 @@
+Original title: What happened to the genius doctors who were touted in those years?
+
+   (Health Times reporter Sun Huan) "The genius doctor who violated the ancestral precepts" Zhang Wenrong was removed from his post. On March 10, the State Administration of Traditional Chinese Medicine responded that it is currently conducting an investigation by the State Administration of Market Supervision and Administration of the United Nations.
+
+In recent years, with the continuous deepening of various medical advertisements, "general doctors" have emerged one after another. They often claim that products can "cure all diseases" and "remedy diseases"... However, after being exposed and questioned by the public, these The so-called "general doctor" cannot escape the fate of "cannot save oneself".
+
+   "The genius doctor" Xiao Hongci: The man who died abroad was sentenced
+
+   Xiao Hongci's real name is Xiao Hongchi. He has promoted a "Paida Lajin self-healing method" in the name of "a magical technique for curing all diseases" around the world.
+
+   From Beijing, Guangzhou, Wuhan, and Taiwan at the beginning, it has developed to Britain, Germany, Singapore, South Africa, Australia and other countries.
+
+   In 2015, a 6-year-old boy with type 1 diabetes, accompanied by his parents, participated in the "Paida Lajin Self-Healing Method" experience class held by Xiao Hongci in Australia. During the treatment, the boy was forbidden to eat or use insulin. The boy lost consciousness a few days later and died unfortunately.
+
+   The autopsy report showed that Fenton died because of a diabetic complication "ketoacidosis", which was caused by the accumulation of ketoacid in the body of diabetic patients without insulin.
+
+   In December 2019, "Paida Lajin" Xiao Hongci was sentenced to 10 years in prison by the Downing District Court of Sydney for manslaughter.
+
+   "Contemporary Huatuo" Hu Wanlin: jailed many times in his life
+
+　　 In November 2014, "magic doctor" Hu Wanlin was sentenced to 15 years in prison for "illegal practice of medicine."
+
+Hu Wanlin was born in 1949. Since the 1970s and 1980s, he has created the "five-flavor therapy" and the "new therapies for vomiting the old", claiming to be able to treat diabetes, hypertension, leukemia, AIDS, cardiovascular and cerebrovascular diseases, and various types Cancer, seeing a doctor is also very magical. No pulse, no cause of the patient’s cause, no prescription, aroused everyone to follow him. It was even promoted by some followers as "contemporary Huatuo".
+
+   During his repeated illegal practice of medicine, many patients died of taking his thenardite-containing drugs, and Hu Wanlin was also imprisoned many times. It can be said that most of my life is spent in prison.
+
+   "Cancer-killing doctor" Li Zhihuan: Approved by the procuratorate for arrest
+
+   Claiming to have cancer treatment skills, Li Zhihuan started to treat people with herbal medicine in 1982, and prepared "anti-cancer" potions without authorization, and sold them at his own price. The original price of 5 yuan a bottle has now risen to 300 yuan a bottle.
+
+   The health department has carried out sampling tests on its privately-made "anti-cancer" syrup for many times, and it was identified as: toxic and non-anti-cancer effect. The health department imposed several administrative penalties on Li Zhihuan’s violation of the relevant provisions of the Drug Administration Law and practice of medicine without a license, but he continued to teach him repeatedly. He also carefully packaged himself as a "cancer genius doctor." After practicing medicine illegally for nearly 20 years, Li Zhihuan illegally made more than 12 million yuan in profits.
+
+   On August 14, 2000, Li Zhihuan was arrested on suspicion of illegal medical practice by the Procuratorate of Xing’an County, Guangxi Zhuang Autonomous Region.
+
+  3 years and 9 active TV stations: Liu Hongbin was investigated
+
+Since 2014, a silver-haired old lady named "Liu Hongbin (Bin/Bin)" has appeared on Henan, Tibet, Qinghai, Southeast, Jilin, Heilongjiang and other provincial satellite TVs with 9 different identities. , Recommended nearly 10 kinds of medicines and health products, and became a popular "genius doctor".
+
+   Her multiple identities are confusing. She is an ancestral Miao medical heir on Tibet TV. She is the fifth generation heir of Mongolian medicine on Inner Mongolia TV. She is a diabetes expert at Peking University on Henan Cable TV. She has become a senior nutritionist on Gansu TV.
+
+   However, in response to this situation, Peking University, Jilin Provincial People's Hospital and Beijing Ditan Hospital all stated: Liu Hongbin (Bin) found no such person. No person named Liu Hongbin (Bin) was found in the practicing physician inquiry system on the website of the National Health and Family Planning Commission.
+
+Some lawyers believe that if the expert’s identity is proved to be false and the profit from the false endorsement reaches the legal amount, his behavior is also for the purpose of illegal possession from the perspective of criminal law, using fictitious facts or concealing the truth to defraud the amount The conduct of relatively large public and private property constitutes the crime of fraud and shall bear criminal responsibility.
+
+   In 2016, the State Administration of Press, Publication, Radio, Film and Television issued the "Notice on Further Strengthening the Broadcasting Management of Medical Health Programs and Medical Advertisements". The "Notice" clearly stipulates that medical information and medical health programs can only be planned and produced by radio and television stations, and cannot be produced by social companies; medical health programs need to be reported; medical health programs are strictly prohibited to introduce medical treatment, Directly or indirectly publish advertisements and promote goods and services in the form of health and health-preserving knowledge.
