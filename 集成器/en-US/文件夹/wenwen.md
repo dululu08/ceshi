@@ -18,28 +18,28 @@ In recent years, with the continuous deepening of various medical advertisements
 
    "Contemporary Huatuo" Hu Wanlin: jailed many times in his life
 
-　　2014年11月，“神医”胡万林因“非法行医”获刑15年。
+　　 In November 2014, "magic doctor" Hu Wanlin was sentenced to 15 years in prison for "illegal practice of medicine."
 
-　　胡万林1949年出生，从上世纪七八十年代开始，创造“五味疗法”和“吐故纳新疗法”，号称不用打针吃药，就能治疗糖尿病、高血压、白血病、艾滋病、心脑血管病、各类癌症，看病也很神奇，一不号脉，二不问病人病因，三不开药方，引发众人追随。 甚至被一些追随者鼓吹为“当代华佗”。
+Hu Wanlin was born in 1949. Since the 1970s and 1980s, he has created the "five-flavor therapy" and the "new therapies for vomiting the old", claiming to be able to treat diabetes, hypertension, leukemia, AIDS, cardiovascular and cerebrovascular diseases, and various types Cancer, seeing a doctor is also very magical. No pulse, no cause of the patient’s cause, no prescription, aroused everyone to follow him. It was even promoted by some followers as "contemporary Huatuo".
 
-　　在他多次非法行医过程中，多名患者因服用他的含芒硝药物而死亡，胡万林也因此多次入狱。 可以说人生中大部分时间都是在监狱中度过的。
+   During his repeated illegal practice of medicine, many patients died of taking his thenardite-containing drugs, and Hu Wanlin was also imprisoned many times. It can be said that most of my life is spent in prison.
 
-　　“克癌神医”李之焕：被检察机关批准逮捕
+   "Cancer-killing doctor" Li Zhihuan: Approved by the procuratorate for arrest
 
-　　自称有治癌之技，李之焕从1982年开始用草药给人治病，擅自配制“抗癌”药水，自行定价出售，从原来定价5元一瓶，现涨至300元一瓶。
+   Claiming to have cancer treatment skills, Li Zhihuan started to treat people with herbal medicine in 1982, and prepared "anti-cancer" potions without authorization, and sold them at his own price. The original price of 5 yuan a bottle has now risen to 300 yuan a bottle.
 
-　　卫生部门多次对其私制的“抗癌”药水进行抽样检验，鉴定为：有毒、无抗癌作用。 卫生部门对李之焕违反《药品管理法》有关规定和无证行医等行为给予了多次行政处罚，他仍屡教不改。 还用心包装自己成为“克癌神医”。 非法行医近20年，李之焕非法谋利1200多万元。
+   The health department has carried out sampling tests on its privately-made "anti-cancer" syrup for many times, and it was identified as: toxic and non-anti-cancer effect. The health department imposed several administrative penalties on Li Zhihuan’s violation of the relevant provisions of the Drug Administration Law and practice of medicine without a license, but he continued to teach him repeatedly. He also carefully packaged himself as a "cancer genius doctor." After practicing medicine illegally for nearly 20 years, Li Zhihuan illegally made more than 12 million yuan in profits.
 
-　　2000年8月14日，李之焕被广西壮族自治区兴安县检察院以涉嫌非法行医罪批准逮捕。
+   On August 14, 2000, Li Zhihuan was arrested on suspicion of illegal medical practice by the Procuratorate of Xing’an County, Guangxi Zhuang Autonomous Region.
 
-　　3年9身份活跃电视台：刘洪斌被查
+  3 years and 9 active TV stations: Liu Hongbin was investigated
 
-　　2014年以来，一位叫“刘洪斌（滨/彬）”的银发老太太，竟以9个不同身份，无缝切换出现在河南、西藏、青海、东南、吉林、黑龙江等多个省级卫视上，推荐了近10种药品、保健品，成了炙手可热的当红“神医”。
+Since 2014, a silver-haired old lady named "Liu Hongbin (Bin/Bin)" has appeared on Henan, Tibet, Qinghai, Southeast, Jilin, Heilongjiang and other provincial satellite TVs with 9 different identities. , Recommended nearly 10 kinds of medicines and health products, and became a popular "genius doctor".
 
-　　她的多重身份让人晕头转向，在西藏卫视她是祖传苗医传人，在内蒙古卫视她是蒙医第五代传人，在河南有线电视她是北大糖尿病专家，在甘肃卫视又成了高级营养师。
+   Her multiple identities are confusing. She is an ancestral Miao medical heir on Tibet TV. She is the fifth generation heir of Mongolian medicine on Inner Mongolia TV. She is a diabetes expert at Peking University on Henan Cable TV. She has become a senior nutritionist on Gansu TV.
 
-　　然而对于这一情况，北京大学、吉林省人民医院和北京地坛医院等均表示：刘洪斌（滨）查无此人。 在国家卫计委网站执业医师查询系统中，也未查到名为刘洪斌（滨）的人。
+   However, in response to this situation, Peking University, Jilin Provincial People's Hospital and Beijing Ditan Hospital all stated: Liu Hongbin (Bin) found no such person. No person named Liu Hongbin (Bin) was found in the practicing physician inquiry system on the website of the National Health and Family Planning Commission.
 
-　　有律师认为，如果专家身份证实为假，且其从虚假代言中获利达到法定数额，其行为从刑法角度上讲，也属于以非法占有为目的，用虚构事实或者隐瞒真相的方法，骗取数额较大的公私财物的行为，构成诈骗罪，应当承担刑事责任。
+Some lawyers believe that if the expert’s identity is proved to be false and the profit from the false endorsement reaches the legal amount, his behavior is also for the purpose of illegal possession from the perspective of criminal law, using fictitious facts or concealing the truth to defraud the amount The conduct of relatively large public and private property constitutes the crime of fraud and shall bear criminal responsibility.
 
-　　2016年，国家新闻出版广电总局发布了《关于进一步加强医疗养生类节目和医药广告播出管理的通知》。 该《通知》对医疗资讯、医疗养生类节目明确规定，医疗养生类节目只能由电台电视台策划制作，不得由社会公司制作；医疗养生类节目需报备；严禁医疗养生类节目以介绍医疗、健康、养生知识等形式直接或间接发布广告、推销商品和服务。
+   In 2016, the State Administration of Press, Publication, Radio, Film and Television issued the "Notice on Further Strengthening the Broadcasting Management of Medical Health Programs and Medical Advertisements". The "Notice" clearly stipulates that medical information and medical health programs can only be planned and produced by radio and television stations, and cannot be produced by social companies; medical health programs need to be reported; medical health programs are strictly prohibited to introduce medical treatment, Directly or indirectly publish advertisements and promote goods and services in the form of health and health-preserving knowledge.
